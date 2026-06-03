@@ -1,4 +1,4 @@
-# 
+# Ultimate trader joe trading bot presets for Mac OS | Turbo trader joe trading bot presets for PC Windows. Featuring signal generation and yield farming — optimized for maximum performance on every platform.
 
 
 
